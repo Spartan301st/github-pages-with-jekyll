@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Good to see YOU SpArTaN!!!
 
-I'm glad you are here. I plan to talk about ...
+Let's go
